@@ -4,7 +4,7 @@ UGC creator and HR Executive creating high-quality brand partnerships in HR tech
 HR Executive | UGC Creator | AI Evaluation 
 
 ## Overview
-HR Executive specializing in compliance, workforce governance, and AI evaluation. UGC creator partnering with brands on HR tech, productivity apps, lifestyle, and self-improvement content.
+HR Executive specializing in compliance, workforce governance, and AI evaluation. UGC creator partnering with brands on HR tech, productivity apps, lifestyle, and self-improvement content. Relatable, trustworthy content for mature (60+) demographic
 
 ## Expertise
 - HR Policy & Compliance  
