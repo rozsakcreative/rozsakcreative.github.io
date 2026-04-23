@@ -27,4 +27,4 @@ HR Executive specializing in compliance, workforce governance, and AI evaluation
 - HR consulting  
 
 ## Contact
-LinkedIn: (add your link)
+LinkedIn: [([add your link](https://www.linkedin.com/in/dkempsphr/)]
