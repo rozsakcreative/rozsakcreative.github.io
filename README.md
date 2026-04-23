@@ -14,7 +14,7 @@ HR Executive specializing in compliance, workforce governance, and AI evaluation
 
 ## Projects
 - AI onboarding and annotation work  
-- Digital product: Zero-Budget AI Side Hustles  
+- Digital products: Turn Job Interviews Into Job Offers | HR Strategy: Compromise Without Compromise
 
 ## Certifications
 - SHRM-SCP  
